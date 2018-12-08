@@ -1,2 +1,2 @@
 # Developer
-None???
+Hello Dear Team :). I would like to apply as a developer because I can program very well. My name is Gregor and I'm 16 years old. I can create pl well and build very well. I have very long experience in java and dev/mod. My experience in the field of dev was so 3 years and java so 5 years. My strengths are: Good English skills, good pl creation and more. My skills are: Being able to program well, create pl, work diligently, never discourse. 
